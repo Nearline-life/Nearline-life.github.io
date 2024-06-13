@@ -12,10 +12,15 @@ so time rolls on and i find the internet becoming more and more of a cesspit, no
 combined with anything and everything, all of the time.. it gets a bit off-putting.
 
 ## new generation of shit
-Abominable Intelligence 
+Abominable Intelligence is spewing, at unprecidented rates.. a new generation of content/garbage, re-hashing stolen works to write articles, draw images and other human creative endevours
 
 ## What do?
 well, the answer looks easy.. leave.
 
 But so much has been out-sourced to the internet, local shopping is a shadow of its former self. 
-Organisations decreasingly engage with the public in meat-space, so i need to
+Organisations decreasingly engage with the public in meat-space, so i need to maintain some link to the net.
+
+
+# A solution?
+become more mindful of what you are doing. kill off hte doom scrolling, the instant gratification, the endless gruel of "the feed"
+Pick what I want to consume, 
