@@ -22,5 +22,10 @@ Organisations decreasingly engage with the public in meat-space, so i need to ma
 
 
 # A solution?
-become more mindful of what you are doing. kill off hte doom scrolling, the instant gratification, the endless gruel of "the feed"
-Pick what I want to consume, 
+become more mindful of what you are doing. kill off the doom scrolling, the instant gratification, the endless gruel of "the feed"
+
+Pick what I want to consume, and do so carefully, and slowly.
+
+
+[[Cutting Back]]
+[[OS and updates]]
