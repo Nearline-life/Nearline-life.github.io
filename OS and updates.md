@@ -1,5 +1,5 @@
 
-to keep my computer running, i'll ned a modern os.. and system updates.
+to keep my computer running, i'll need a modern os.. and system updates.
 Guess that means i'll need a cache
 ## OS
 gonna have to be a linux.. my preferred choice is debian, as they still do disc based distributions.. sorta...
