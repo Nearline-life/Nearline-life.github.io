@@ -29,3 +29,4 @@ Pick what I want to consume, and do so carefully, and slowly.
 
 - [Cutting Back](Cutting Back.md)
 - [OS and updates](OS and updates.md)
+- [Library](Library.md)
